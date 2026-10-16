@@ -4,7 +4,7 @@
 🚀 Building modern web applications and real-world projects  
 🌱 Currently learning Backend Development & APIs  
 🔥 Passionate about coding, problem solving, and technology  
-📫 Reach me: lakisharma@example.com  
+📫 Reach me: lakisharma2024@gmail.com  
 
 ### ⚡ Fun Fact
 I turn coffee ☕ into clean code 💻
